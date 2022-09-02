@@ -8,6 +8,11 @@
 
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
+
+
+[THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
+[The Jones Girls - Nights Over Egypt (HD)](https://www.youtube.com/watch?v=pzxwZ6wjDAM)
+
 <IMG src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/104820131_1643401582488159_2303690237508253502_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=730e14&_nc_ohc=5bKV75yikkgAX_DNGLZ&_nc_ht=scontent-lax3-1.xx&oh=00_AT-VZ03-PsxzKJd1vfLLeOVBMjeHbRjs6GWEWSodyNBPhQ&oe=6319D447">
 
 ## Dear_Latto,
@@ -15,7 +20,7 @@ I moved the message board our family collaborates reunification through and othe
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoErrmssg.PNG">
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoRerun.PNG">
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/pages_not_serving_for_anything_with_sevyn_in_it_some_people_are_promoting_child_molestation_publically_these_days_and_supressing_her_prostitution.PNG">
-[THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
+
 <div class='twoPanelSpread'>
   <div class='row'>
     <div class='panelColumn'>
