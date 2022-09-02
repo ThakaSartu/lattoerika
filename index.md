@@ -8,6 +8,7 @@
 
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
+<IMG src="https://scontent-lax3-1.xx.fbcdn.net/v/t1.6435-9/104820131_1643401582488159_2303690237508253502_n.jpg?_nc_cat=102&ccb=1-7&_nc_sid=730e14&_nc_ohc=5bKV75yikkgAX_DNGLZ&_nc_ht=scontent-lax3-1.xx&oh=00_AT-VZ03-PsxzKJd1vfLLeOVBMjeHbRjs6GWEWSodyNBPhQ&oe=6319D447">
 
 ## Dear_Latto,
 I moved the message board our family collaborates reunification through and other than some simple build errors its running. Sevyn's page still is not displaying. She got enslaved too... Her dad know Frank in real life so Im hacking a way to reentry from blackballing and disassociation. And my condolences. One of your captors is locked up and I dont know what to say but I know your body binded unaturally and that shit hurts regardless... Sorry they chipped your teeth out... I wonder what Brenda thinks?
