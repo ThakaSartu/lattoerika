@@ -9,6 +9,7 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
+[THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
 <div class='twoPanelSpread'>
   <div class='row'>
     <div class='panelColumn'>
