@@ -9,7 +9,9 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
+<hr>
 
+[You Gonna Make Me Love Somebody Else](https://www.youtube.com/watch?v=sILFP6Z5P_o)
 [THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
 [The Jones Girls - Nights Over Egypt (HD)](https://www.youtube.com/watch?v=pzxwZ6wjDAM)
 
@@ -20,7 +22,7 @@ I moved the message board our family collaborates reunification through and othe
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoErrmssg.PNG">
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoRerun.PNG">
 <IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/pages_not_serving_for_anything_with_sevyn_in_it_some_people_are_promoting_child_molestation_publically_these_days_and_supressing_her_prostitution.PNG">
-
+<hr>
 <div class='twoPanelSpread'>
   <div class='row'>
     <div class='panelColumn'>
@@ -49,7 +51,7 @@ I moved the message board our family collaborates reunification through and othe
     </div>
   </div>
 </div>
-<img src="https://raw.githubusercontent.com/ThakaRashard/holetoanotheruniverse/gh-pages/Illustrator_v5.5_Disk_1_Installer_0199_7626Adobe_Systems_Inc.May_1994_Front_1000x.png" alt="iLLUSTRATOR_ON_FLOPPY" >
+<img src="https://3.bp.blogspot.com/-Enf1c-Gxk-c/WrCMC98gJ8I/AAAAAAAAAPA/OBhoS1z8W_MrcaqPt5whmf_cvRHsmFWuACLcBGAs/s1600/Illustrator-2000-V9.jpg" alt="iLLUSTRATOR_ON_FLOPPY" >
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/bW-74U5xuf4" title="FX the video" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <iframe width="100%" height="601" src="https://www.youtube.com/embed/FJZ-BHBKyos" title="[HD] Greatest Hollywood Car Chase of All Time - Bullitt (1968)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
