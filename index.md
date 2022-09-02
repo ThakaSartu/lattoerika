@@ -9,6 +9,11 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
+## Dear_Latto,
+I moved the message board our family collaborates reunification through and other than some simple build errors its running. Sevyn's page still is not displaying. She got enslaved too... Her dad know Frank in real life so Im hacking a way to reentry from blackballing and disassociation. And my condolences. One of your captors is locked up and I dont know what to say but I know your body binded unaturally and that shit hurts regardless... Sorry they chipped your teeth out... I wonder what Brenda thinks?
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoErrmssg.PNG">
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/lattoRerun.PNG">
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/pages_not_serving_for_anything_with_sevyn_in_it_some_people_are_promoting_child_molestation_publically_these_days_and_supressing_her_prostitution.PNG">
 [THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
 <div class='twoPanelSpread'>
   <div class='row'>
