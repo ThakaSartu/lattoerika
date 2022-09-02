@@ -54,8 +54,17 @@ I moved the message board our family collaborates reunification through and othe
 <img src="https://3.bp.blogspot.com/-Enf1c-Gxk-c/WrCMC98gJ8I/AAAAAAAAAPA/OBhoS1z8W_MrcaqPt5whmf_cvRHsmFWuACLcBGAs/s1600/Illustrator-2000-V9.jpg" alt="iLLUSTRATOR_ON_FLOPPY" >
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/bW-74U5xuf4" title="FX the video" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<iframe width="100%" height="601" src="https://www.youtube.com/embed/FJZ-BHBKyos" title="[HD] Greatest Hollywood Car Chase of All Time - Bullitt (1968)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<iframe width="100%" height="601" src="https://www.youtube.com/embed/TYw-xygF5Pc" title="775 hp Supercharged Bullitt Mustang Steve McQueen Edition from Steeda" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<img src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/screenshots/Illustrator55FLOPPY.png" alt="iLLUSTRATOR_ON_FLOPPY" >
+
+<img src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/screenshots/kisspng-microsoft-certified-professional-mcse-professional-5b1aba65b10867.3978440915284783097251.png" alt="iLLUSTRATOR_ON_FLOPPY" >
+
+<div style="width:100%; height:100%;background: url('https://i.imgur.com/b7gwf2Q.jpg') ">
+	<img src="https://raw.githubusercontent.com/ThakaSartu/lattoerika/master/assets/images/screenshots/kisspng-microsoft-certified-professional-mcse-professional-5b1aba65b10867.3978440915284783097251.png" style="" >
+</div>
+
+
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/FJZ-BHBKyos" title="[HD] Greatest Hollywood Car Chase of All Time - Bullitt (1968)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/TYw-xygF5Pc" title="775 hp Supercharged Bullitt Mustang Steve McQueen Edition from Steeda" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/muna_i_wanna_BULLiT_LiKE_JEFFS7.PNG">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/muna_i_wanna_BULLiT_LiKE_JEFFS.PNG">
 
