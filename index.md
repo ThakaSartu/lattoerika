@@ -11,6 +11,8 @@ One day my blog will `RETURN true` when run from the [command](https://youtu.be/
 
 <hr>
 
+[Don't Let It Go to Your Head (12" Version)](https://www.youtube.com/watch?v=2TaQl86Ob4U)
+[The Glamorous Life](https://www.youtube.com/watch?v=HpO07s-Aw4I)
 [You Gonna Make Me Love Somebody Else](https://www.youtube.com/watch?v=sILFP6Z5P_o)
 [THE_BROTHERS_JOHNSON Strawberry Letter 23](https://www.youtube.com/watch?v=rquygdjf0d8)
 [The Jones Girls - Nights Over Egypt (HD)](https://www.youtube.com/watch?v=pzxwZ6wjDAM)
