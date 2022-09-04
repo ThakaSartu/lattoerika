@@ -9,7 +9,25 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
+<IMG src="https://upload.wikimedia.org/wikipedia/commons/f/fd/It_%281927_film_poster%29.jpg">
+<iframe width="100%" height="400" src="https://www.youtube.com/embed/zq8Kr7SREys" title="Clara Bow is dancing the Hula" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<IMG src="https://i.pinimg.com/originals/82/38/43/82384346f772edf917ad61370552b14e.gif">
+
+[The%20Goddess%20of%20Spring%20-%20Silly%20Symphony](https://www.youtube.com/watch?v=pBo8NOarYMo)
+
+<IMG src="https://i.pinimg.com/736x/cd/50/a0/cd50a0503ac8c96e7de28371d258e99f--disney-posters-classic.jpg">
+
+[Silly Symphonies - The Skeleton Dance](https://www.youtube.com/watch?v=vOGhAV-84iI)
+<IMG src="https://m.media-amazon.com/images/M/MV5BOWRmNDI2MWEtNzIwNi00ZTFjLThlNjYtZjEwOTdhZTI3NDM5XkEyXkFqcGdeQXVyNjYyODY4NDU@._V1_FMjpg_UX1000_.jpg">
+
+[Popeye The Sailor Man - Meets Alibaba's Forty Thieves](https://www.youtube.com/watch?v=W0uqdyMns9M)
+
+<IMG src="https://dygtyjqp7pi0m.cloudfront.net/i/28385/24833978_1.jpg?v=8D397A887547150">
+
+[Silly Symphony - The Three Little Pigs](https://www.youtube.com/watch?v=FsZ61cCieaM)
+<IMG src="https://upload.wikimedia.org/wikipedia/commons/f/fd/It_%281927_film_poster%29.jpg">
 <hr>
+
 [KING DAVID | The entire movie for children in English | TOONS FOR KIDS | EN](https://youtu.be/83GiOsCO42M)
 [Destiny's Child - Cater 2 U](https://www.youtube.com/watch?v=juqws1LIH-I)
 <hr>
